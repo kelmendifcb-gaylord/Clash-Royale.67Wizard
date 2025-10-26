@@ -1,1 +1,1 @@
-Du bist ein Ligma
+Hier drücken um Emote abzurufen
